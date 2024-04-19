@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the above fields and Alpha Omeaga Coin (AOC), the divinely inspired cryptocurrency whose ecosystem and protocol to preserve humanity against the signn 666's or the 
 centralised satanicaly inspired worldwide government' dramas. 
 
-Kindly visit Alpha Omega Coin (AOC) website here: www.aocfinance.com 
+Kindly visit Alpha Omega Coin (AOC) website here: www.alphaomegacoin.com or www.web3.alphaomegacoin.com
 <!---
 alphaomegacoinaoc/alphaomegacoinaoc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
